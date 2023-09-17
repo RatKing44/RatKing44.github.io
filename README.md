@@ -14,4 +14,4 @@ Wanna see one of my favorite video games of all time?
 | 🛒 | 🌻 | 🌳 |.| .| . | 🧟 |
 
 
-Any ways, that's all I have to say! 
+Anyways, that's all I have to say! 
